@@ -1,1 +1,1 @@
-# suki.github.io
+# adoredq's blog
